@@ -1,4 +1,4 @@
-# 
+# Elite ftx trading bot extensões para Mac OS | Automático ftx trading bot extensões para PC Windows. Com análise de volume e cultivo de rendimento — otimizado para máximo desempenho em cada plataforma.
 
 
 
